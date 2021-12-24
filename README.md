@@ -1,2 +1,9 @@
 # prinsenland-haldol-fitness-centrum
+
 for the amputation of neurons
+
+# bouman ggz
+https://nl.wikipedia.org/wiki/Bouman_GGZ
+
+# dwangarbeid
+https://nl.wikipedia.org/wiki/Dwangarbeid
